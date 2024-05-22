@@ -1,4 +1,5 @@
-# Welcome to Telegram Marketing Pro Bulk Scraper|Extract|Add|Search|Invite Member|Join Group 
+# Telegram Marketing Tools-Scraper/Extract/Add/Search/Invite Member
+
 ## free download here: 🌐 https://bit.ly/3GLmU7C
 ## All Product List:🌐 https://bit.ly/alloninesocial
 ### Telegram: 👉 https://t.me/IonicSupport   
@@ -9,7 +10,7 @@
 #### 📽 https://www.youtube.com/channel/UCz2Ti8uKwv0Fh5j5IgUTPww
 #### 📽 https://www.youtube.com/channel/UC6NZcaPmat9ooKW1yLxdnjQ
 
-<h2><strong> Welcome to Telegram Marketing Pro Bulk Scraper|Extract|Add|Search|Invite Member|Join Group Pro</strong></h2>
+<h2><strong> Telegram Marketing Tools-Scraper/Extract/Add/Search/Invite Member</strong></h2>
 <p><strong>Telegram Marketing Pro</strong> is a comprehensive tool for businesses and marketers looking to maximize
   their reach on Telegram. </p>
 
